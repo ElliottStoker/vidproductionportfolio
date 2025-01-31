@@ -1,6 +1,6 @@
 # Elliott's Video Production Portfolio
 
-Good
+Bio: (:
 
 ## Projects for Term 3
 
